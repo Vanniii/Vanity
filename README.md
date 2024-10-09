@@ -1,8 +1,13 @@
-## Hi there 👋
+## Hi hi hello!! 👋
 
-Well, I gotta write stuff here ig.
-uhhhhhhhhh ill do it later
-
+💡 Currently working on multiple projects! including:
+    - Game Development
+    - Pixel Art
+    - In general, computer science
+    - D&D
+    - Fantasy novel worldbuilding!
+  
+Also a PRO GAMER!! Such as sky, celeste, terraria, cult of the lamb, dont starve together, little nightmares 1 + 2, crosscode, geometry dash, superhot (both), and more!! 
 <!--
 **VanityHasNoLife/VanityHasNoLife** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
