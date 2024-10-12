@@ -7,7 +7,7 @@
     - D&D
     - Fantasy novel worldbuilding!
   
-Also a PRO GAMER!! Such as sky, celeste, terraria, cult of the lamb, dont starve together, little nightmares 1 + 2, crosscode, geometry dash, superhot (both), and more!! 
+🎮 Also a PRO GAMER!! Such as sky, celeste, terraria, cult of the lamb, dont starve together, little nightmares 1 + 2, crosscode, geometry dash, superhot (both), and more!! 
 <!--
 **VanityHasNoLife/VanityHasNoLife** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
