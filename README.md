@@ -1,4 +1,4 @@
-## Hi hi hello!! 👋
+## Hi hi hello!! 👋 (I promise this looked better in the editor please)
 
 💡 Currently working on multiple projects! including:
     - Game Development
